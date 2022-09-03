@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @siavash-id
+- 👀 I’m interested in: PC and tech
+- 🌱 I’m currently learning: Python and C++ for the next(I know it's just weird)
+- 📫 How to reach me: by @siavash_id on every social media
